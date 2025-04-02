@@ -1,6 +1,8 @@
 <h1>Codice di riferimento BTCC 'BTCCBONUS' – Fino a 11.000 USDT di bonus & 50% di sconto sulle commissioni</h1>
 <h2>Introduzione</h2>
 <p>Stai cercando il modo migliore per massimizzare le tue ricompense di trading su BTCC? Con l'ultimo codice di riferimento BTCC (codice promozionale o codice sconto), i nuovi utenti ricevono un bonus di iscrizione fino a 11.000 USDT e uno sconto del 50% sulle commissioni di trading. Che tu sia un principiante o un trader esperto, approfitta dei vantaggi esclusivi di questo bonus di riferimento BTCC.</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
+
 <h2>Bonus di iscrizione BTCC fino a 11.000 USDT</h2>
 <h3>Codice di riferimento BTCC - BTCCBONUS</h3>
 <table border="1">
