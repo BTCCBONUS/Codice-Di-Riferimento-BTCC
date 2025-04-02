@@ -2,6 +2,7 @@
 
 <p><strong>Introduzione</strong></p>
 <p>BTCC è una delle principali piattaforme di scambio di criptovalute, offrendo agli utenti una piattaforma di trading robusta per una varietà di asset digitali. Con la crescita del mercato delle criptovalute, BTCC ha implementato strutture di commissioni competitive e programmi di sconti attraenti per consentire agli utenti di fare trading in modo efficiente riducendo i costi. Uno degli strumenti più preziosi per gli utenti che desiderano beneficiare dei risparmi sui costi di BTCC è il <strong>codice di referral BTCC</strong>. Questo articolo spiega come utilizzare il <strong>codice di referral BTCC</strong>, il <strong>codice promo BTCC</strong> e il <strong>codice sconto BTCC</strong> per sbloccare premi di trading e bonus esclusivi, come il <strong>bonus di iscrizione BTCC</strong> e uno sconto del 50% sulle commissioni.</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
 
 <h2>Comprendere la struttura delle commissioni BTCC</h2>
 <p><strong>Commissioni di trading spot</strong></p>
