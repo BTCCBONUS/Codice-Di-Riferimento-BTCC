@@ -1,6 +1,8 @@
 <h1>Codice di riferimento BTCC 2025: Ottieni l'ultimo bonus di registrazione</h1>
 <h2>1. Introduzione</h2>
 <p>BTCC è una piattaforma di scambio di criptovalute leader, nota per le sue <strong>tariffe competitive, sicurezza e interfaccia intuitiva</strong>. I nuovi utenti possono usufruire di vantaggi esclusivi registrandosi con un <strong>codice di riferimento BTCC</strong>...</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
+
 <h2>2. Cos'è il bonus di riferimento BTCC?</h2>
 <p>Il <strong>bonus di benvenuto BTCC</strong> è un programma di incentivi che offre ricompense come <strong>sconti sulle commissioni di transazione, bonus sul deposito e premi in USDT</strong> per i nuovi utenti.</p>
 <h3>Perché BTCC offre un bonus di riferimento?</h3>
